@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://sudeepsalian7996.github.io/devportfolio/](https://sudeepsalian7996.github.io/devportfolio/)
 
-- 💬 Ask me about **MySQL , NoSQL**
+<!-- - 💬 Ask me about **MySQL , NoSQL** -->
 
 - 📫 How to reach me **sudeep7996@gmail.com**
 
