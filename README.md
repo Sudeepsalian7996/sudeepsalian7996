@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **sudeep7996@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1SzkBQD8GFfyLRpmoSzpOzB2qu-Ma09tI/view?usp=sharing](https://drive.google.com/file/d/1SzkBQD8GFfyLRpmoSzpOzB2qu-Ma09tI/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/16414CbfqdUxIUFOXTreP5cpRQXJneed1/view?usp=sharing](https://drive.google.com/file/d/16414CbfqdUxIUFOXTreP5cpRQXJneed1/view?usp=sharing)
 
 - ⚡ Fun fact **I think i love travelling**
 
